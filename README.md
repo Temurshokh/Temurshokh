@@ -26,7 +26,7 @@
   <br><br>
   💻 Building games in Roblox & running the <b>VIGER Z</b> Minecraft Anarchy Server <br>
   🛠️ PC Hardware geek — currently optimizing specs<br>
-  🌌 Astrophotography amateur, Tokyo Ghoul fan & Calisthenics enjoyer<br>
+  🌌 Astrophotography amateur, NIGGHT fan & Calisthenics enjoyer<br>
 </p>
 
 <hr>
